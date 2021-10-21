@@ -1,2 +1,3 @@
 # hola-mundo
 Ojalá haya paz en el mundo.
+Solo soy un ser humano que trata de sobrevivir a todo lo adverso del mundo, sin embargo a veces quisiera no pensar tanto en los problemas, para eso, me ayudo con los siguientes enunciado: Hoy no me quiero ver, buscando a todo un por qué, dejando que suceda lo que vaya sucediendo y no dudar si dudar, ni ser tan trascendental, no me interprenten mal, solo estoy sobreviviendo...
